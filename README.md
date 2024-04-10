@@ -1,1 +1,1 @@
-# GarvitRakhechaa.github.io
+# GarvitRakhecha.github.io
